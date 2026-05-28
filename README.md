@@ -11,7 +11,13 @@ c+h anytime unless i say so
 <p align="center">
 
 <p align="center">
-main interest is tencell (inside rblxyt
+  <img src="https://files.catbox.moe/1vysya.gif">
+</p>
+<p align="center>
+  
+
+clooless top 1
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　kyroz　smii7y <img src="https://watermelon.crd.co/assets/images/gallery03/2ec8043a.gif?v=75c8e322">
+
 <p align="center">
-  i really like grugcell
-<p align="center">
+<img src="https://dividers.crd.co/assets/images/gallery03/22829132.gif?v=05d33f91">
