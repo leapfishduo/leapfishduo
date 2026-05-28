@@ -6,7 +6,7 @@ c+h anytime unless i say so
 <p align="center">
 
 <p align="center">
-<img width="400" height="350" src="https://dividers.crd.co/assets/images/gallery03/95a7723f.gif?v=05d33f91">
+<img src="https://dividers.crd.co/assets/images/gallery03/95a7723f.gif?v=05d33f91">
 </p>
 <p align="center">
 
