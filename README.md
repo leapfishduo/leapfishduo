@@ -20,6 +20,6 @@ clooless top 1
 　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　kyroz　smii7y <img src="https://watermelon.crd.co/assets/images/gallery03/2ec8043a.gif?v=75c8e322">
 
 <p align="center">
-
+i am a sys but dont ask me or the alters about it we like to keep it private
 <p align="center">
 <img src="https://dividers.crd.co/assets/images/gallery03/22829132.gif?v=05d33f91">
