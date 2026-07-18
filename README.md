@@ -1,6 +1,7 @@
 <p align="center">
-screenshot flood
+smii / sky
+  <p align="center">
+plz iwc if you hate on smii7y as ,,A jooooke... He is my emotional support.
 <p align="center">
-  <img src="https://file.garden/ajX8NCoeCzLAiwE2/Screenshot%202026-06-20%20142613.png">
+<img width="794" height="443" alt="image" src="https://github.com/user-attachments/assets/c2b34b9a-4d68-43f2-902e-2213b9da3cea" />
 
-<img width="870" height="346" alt="image" src="https://github.com/user-attachments/assets/b529ccaf-e438-44b1-83dd-695e0866b42e" />
