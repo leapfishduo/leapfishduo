@@ -1,7 +1,7 @@
 <p align="center">
-smii / sky
+s7 / sky
   <p align="center">
-IWC IF YOU JOKE ON SMII7Y GENUINELY HE IS MY EMOTIONAL SUPPORT THANK YOU VERY MUCH ELILIKESRICE MENTIOED BELOW THI SIMAGE
+also known as the smii7y number one hater i guess
 <p align="center">
-<img width="794" height="443" alt="image" src="https://github.com/user-attachments/assets/c2b34b9a-4d68-43f2-902e-2213b9da3cea" />
+<img width="900" height="325" alt="image" src="https://github.com/user-attachments/assets/513bbe51-b965-48b7-af74-c7ede99d99e5" />
 
